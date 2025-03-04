@@ -5,7 +5,7 @@
 💞️ I’m looking to collaborate on **Frappe Apps, ERPNext Modules, and Full-Stack Projects**.  
 📫 How to reach me:  
    - 💼 [LinkedIn](https://www.linkedin.com/in/suleiman-mohamed-abdirahman-478b57324/?originalSubdomain=so)  
-   - 🎮 [Discord](https://discord.com/invite/dQSTnYYv)  
+   - 📘 [Facebook](https://www.facebook.com/share/14qXgmXTrkC/)  
    - 🔗 [Another GitHub](https://github.com/Himadwise)  
 
 😄 Pronouns: **He/Him**  
